@@ -9,7 +9,7 @@
 # Trong tín ngưỡng người Hoa, cái chết không phải là dấu chấm hết, mà là sự chuyển tiếp từ thế giới dương sang thế giới âm. Người mất được tin là vẫn còn tồn tại ở một thế giới khác, cần được chăm sóc chu đáo, đầy đủ để không trở thành “vong linh cô đơn” hay gây ảnh hưởng đến người sống. Vì thế, tang lễ không chỉ để đưa tiễn mà còn là cách để đảm bảo cho linh hồn người mất được siêu thoát, đầu thai thuận lợi.
 
 # 
-
+Xem thêm: https://maitanggiangtho.vn/phong-tuc-ma-chay-cua-nguoi-hoa/
 # 2\. Các bước trong tang lễ truyền thống của người Hoa
 
 # Báo tang và lập bàn thờ:
